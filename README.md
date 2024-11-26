@@ -20,7 +20,7 @@
 
 : ᯓ e n t p ! ﹐
 
-[01](https://lostknightt.carrd.co)         †        [02](https://roses.atabook.org)
+[01](https://getiann.carrd.co/ )         †        [02](https://roses.atabook.org)
 
 </div>
 
