@@ -8,7 +8,7 @@
 
    ⋆. 𐙚 dantéros or simeon ![](https://64.media.tumblr.com/c26a8b71e75b38c08d8019d0ef7f57ab/9cdc8d0fc1c31f76-d6/s75x75_c1/8276afd6fd1b8516d0836de4f43c0eff1a6ebed9.gifv) 6teen ⋅ᯓ
    
-:.  diagnosed ADHD, sensitive, hyperactive! ⠀ 𝞋𝞎
+:.  overly sensitive . . . use tonetags plz! ^_^⠀ 𝞋𝞎
 
  ⊹   biggest  [austin](https://yaoi.fandom.com/wiki/Sharpe_%26_Rabbit#Main_Characters) kin ^_^
  
