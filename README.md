@@ -1,15 +1,10 @@
-![](https://64.media.tumblr.com/f5ad1f44546c6850898e058fe002fd02/829bc2d84950fa64-fd/s2048x3072/48fd8f4273c7ee05a290de1fce8c481979fbf077.pnj)
 <div align="center">
 
-  
-![](https://64.media.tumblr.com/c624fb2f7d408d5e7fac00b494f6c415/829bc2d84950fa64-9b/s1280x1920/67fceb7ededac8b98064e2df3a84df1407ea5a9c.pnj)
+  ![](https://64.media.tumblr.com/fab275799b19d17751ceb5199a3ce8af/926c64ef46a4055e-c4/s2048x3072/b4a63504ca889eccc8fca8c430e72d368f6bf891.pnj)
 
 
 [RENTRY](https://rentry.co/genius-veritas) ৴ [FAMILY TREE](https://rentry.co/HoHfamilytree) ৴ [STRAWPAGE](https://argentilover.straw.page) ৴ [TUMBLR](https://www.tumblr.com/ffurinya)
 
-![](https://64.media.tumblr.com/4ec58afa97be33a0217ae2284a0bd86d/829bc2d84950fa64-04/s500x750/d77202c36af67dce36bc9b2b6d765cd450a4026c.pnj)
+![](https://64.media.tumblr.com/f85be1f4865d9bb043e341d5366a8a32/926c64ef46a4055e-f3/s100x200/a6d9efb1429f074a36b47073236dcd50eb08dd97.pnj) ![](https://64.media.tumblr.com/2055ce19c728859fad73b4a493c8caec/926c64ef46a4055e-a6/s100x200/0c2b921cabf54f543b1a60a9330336d913bfe8ff.pnj)
 
-![](https://64.media.tumblr.com/360a58b71982445c06fa178b7ee9ac72/829bc2d84950fa64-e4/s2048x3072/fe8b62dae949bd8767a55e646cf8b8701d57aa2e.pnj)
-![](https://64.media.tumblr.com/10ba3dd9346a9c86e19724d092623957/829bc2d84950fa64-4e/s2048x3072/65d21e990fe5b9e438799c659825d98d7a8b177d.pnj)
-
-layout by [lenqkeju](https://www.tumblr.com/lenqkeju/774831985530126337/%E3%85%A4𓈒-ms-moissan)
+![](https://64.media.tumblr.com/280f8c7e1241bb6e0f12e894e1c4b14d/926c64ef46a4055e-db/s250x400/a4c89acfa086e3166936a027769bfcf2857600cc.pnj)
