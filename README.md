@@ -4,4 +4,6 @@
 
 [RENTRY](https://rentry.co/GRIMCASPER-) ৴ [FAMILY TREE](https://rentry.co/HoHfamilytree) ৴ [STRAWPAGE](https://argentilover.straw.page) ৴ [TUMBLR](https://www.tumblr.com/ffurinya) ৴ [RENTRY 2.0](https://rentry.co/DEVIOUS-COOKIES)
 
+@t0rntodescent @ToasterTheFox @D4Z41 @KABUKIM0N0 @WIZTOMFEST short bus gang
+
  (*ゝω・)ﾉ absolute DIEHARD rdr fan, fav char in rdr2 is hosea, charles is a close second! in rdr1 its abigail ^_^
