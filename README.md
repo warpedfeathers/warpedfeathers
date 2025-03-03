@@ -1,8 +1,7 @@
 <div align="center">
 
-  ![](https://64.media.tumblr.com/cff11f273f8569e0b582bb698ceeb3ca/8678d17fe862274d-ee/s1280x1920/dd1835fddd096dd84f92e44d319316da89f75a18.pnj)
-
+  ![](https://64.media.tumblr.com/7b2e96affe4ad9662d347a8ede25dfc8/13760564c08504a5-00/s1280x1920/23a02e5a4d2213cd9cbc40c183ccd28b38a83f75.pnj)
 
 [RENTRY](https://rentry.co/pinkmuncher) ৴ [FAMILY TREE](https://rentry.co/HoHfamilytree) ৴ [STRAWPAGE](https://argentilover.straw.page) ৴ [TUMBLR](https://www.tumblr.com/ffurinya) ৴ [RENTRY 2.0](https://rentry.co/DEVIOUS-COOKIES)
 
- (*ゝω・)ﾉ hi idk i like persona n rdr
+ (*ゝω・)ﾉ hi uuuuuuuuuuuuuuuug i like rdr &....until dawn!
