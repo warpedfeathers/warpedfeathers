@@ -4,4 +4,4 @@
 
 [RENTRY](https://rentry.co/GRIMCASPER-) ৴ [FAMILY TREE](https://rentry.co/HoHfamilytree) ৴ [STRAWPAGE](https://argentilover.straw.page) ৴ [TUMBLR](https://www.tumblr.com/ffurinya) ৴ [RENTRY 2.0](https://rentry.co/DEVIOUS-COOKIES)
 
- (*ゝω・)ﾉ hi uuuuuuuuuuuuuuuug i like rdr &....until dawn!
+ (*ゝω・)ﾉ i like rdr & until dawn!!
